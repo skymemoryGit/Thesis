@@ -1,7 +1,7 @@
 # Tesi
 16-12-2022<br />
 THE END <br />
-In memory of two years at the University of Padua studying cybersecurity master's degree. 
+In memory of my two years studying cybersecurity at the University of Padua after I graduated from my bachelor's degree in software engineering in Covid-19 period.
 
 <pre>
 再见 青春<br />
