@@ -9,4 +9,3 @@ In memory of my two years of studying cybersecurity at the University of Padua a
 
 叶建成 Jiancheng Ye
 
-https://www.youtube.com/watch?v=VzQJgRRNB6E&ab_channel=%E8%8A%92%E6%9E%9CTV%E9%9F%B3%E4%B9%90MangoTVMusic
